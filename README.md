@@ -1,2 +1,0 @@
-# volkanabasanogullari
-volkanabasanogullari
